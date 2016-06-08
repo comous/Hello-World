@@ -1,3 +1,3 @@
 # Hello-World
-to test the system you mother fucker
+to test the system you mother fuckers
 
